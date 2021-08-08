@@ -1,0 +1,1 @@
+firstly take slices of bread then take mozeralla cheese and then add choped onion add basil leaves in it then add two green chilies in it then add 1 tablespoon of italian pizza seasoning on it and mix it well then likely toast the bread then add butter to bread and then add our mixture on it and toast it and our sandwitch is ready.

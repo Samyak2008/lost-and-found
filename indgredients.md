@@ -1,0 +1,1 @@
+slices of bread,mozeralla cheese, cheese slice, choped onion , basil leaves ,green chilies , italian pizza seasoning,butter . 
